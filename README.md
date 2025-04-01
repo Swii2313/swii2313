@@ -63,6 +63,6 @@ I thrive on uncovering hidden stories in datasets—whether it's through statist
 ## 📫 Let's Connect
 
 - **Email:** [Swikritigupt@gmail.com](Swikritigupt@gmail.com)
-- **LinkedIn:** [Swikritigupta](linkedin.com/in/swikriti-gupta-a31238189)
+- **LinkedIn:** [Swikritigupta](https://www.linkedin.com/in/swikriti-gupta-a31238189)
 
 “Data is the new oil, and I’m here to refine it!”. Thank you for visiting my profile. Let's connect, collaborate, and transform data into impactful stories!
